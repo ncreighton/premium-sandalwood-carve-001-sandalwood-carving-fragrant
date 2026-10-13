@@ -1,0 +1,2 @@
+# premium-sandalwood-carve-001-sandalwood-carving-fragrant
+Tired of artificial air fresheners that irritate your senses? Discover a sculpture that naturally perfumes your space while captivating your eyes.  This hand-carved sandalwood sculpture solves the need for elegant decor that also promotes relaxation through natural, long-lasting fragrance. Unlike synthetic options, it offers a pure, subtle woody ar
